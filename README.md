@@ -1,1 +1,0 @@
-# saviorofmankind.github.io
